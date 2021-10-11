@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Aku an I'm a Verified Bot Developer affiliat at Discord
+- 👀 Check my gits and my discord bots. Hevo on Google. 
+- 🌱 Founder & Lead Developer of Hevo Studio
+- 📫 Contact me on Discord: aku.#8517
